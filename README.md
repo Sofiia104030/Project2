@@ -2,3 +2,4 @@
 Zadanie 
 uwaznie czytaj
 efrjenrgv
+ fhfg 
