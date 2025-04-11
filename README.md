@@ -4,3 +4,4 @@ uwaznie czytaj
 efrjenrgvjnsf
  bkdgmlfxd f,kmcx
  msgklvdim
+dgjjndkgd
