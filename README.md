@@ -1,4 +1,6 @@
 # Project2
 Zadanie 
 uwaznie czytaj
-efrjenrgv
+efrjenrgvjnsf
+ bkdgmlfxd f,kmcx
+ msgklvdim
